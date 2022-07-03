@@ -1,2 +1,10 @@
-# MercadoTech
-Delifina - FIorella - Daniel Aranivar - Carolina - Florencia - Facundo
+
+
+Delifina - Ripoll 
+FIorella Crocco
+ Daniel - Aranivar 
+Carolina - 
+Florencia - 
+Facundo - 
+
+
