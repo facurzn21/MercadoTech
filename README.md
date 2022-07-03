@@ -1,2 +1,2 @@
 # MercadoTech
-Delifina - FIorella - Daniel - Carolina - Florencia - Facundo
+Delifina - FIorella - Daniel Aranivar - Carolina - Florencia - Facundo
