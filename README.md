@@ -1,2 +1,9 @@
 # MercadoTech
-Delifina Ripoll - FIorella - Daniel - Carolina - Florencia - Facundo
+
+Delifina - Ripoll 
+FIorella Crocco
+ Daniel - 
+Carolina - 
+Florencia - 
+Facundo - 
+
