@@ -1,2 +1,11 @@
 # MercadoTech
-Delifina - FIorella - Daniel - CarolinaFaccio - Florencia - Facundo
+
+
+Delifina - Ripoll 
+FIorella Crocco
+ Daniel - 
+Carolina - Faccio 
+Florencia - 
+Facundo - 
+
+
