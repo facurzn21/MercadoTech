@@ -1,2 +1,2 @@
 # MercadoTech
-Delifina - FIorella - Daniel - Carolina - Florencia - Facundo
+Delifina Ripoll - FIorella - Daniel - Carolina - Florencia - Facundo
